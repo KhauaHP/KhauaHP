@@ -5,5 +5,6 @@ Meu Nome e Khauã
 - Planejo Evoluir
 - Transformarei esse ensinamento em Armas
 
-![]()
+! [] ()
+
 https://media1.tenor.com/m/9-a9YnxWsfIAAAAC/one-piece-enel.gif
